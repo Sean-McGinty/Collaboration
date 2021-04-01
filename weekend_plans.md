@@ -20,3 +20,9 @@ Katie will do this:
 - do homework
 - get dinner with friends 
 
+Christopher will do this:
+
+* do homework
+* go to the aquarium
+* play video games
+* sing sea shanties
