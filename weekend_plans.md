@@ -5,3 +5,10 @@ This weekend I will:
 * Study
 * Watch the Sunset
 * Go Stargazing
+
+This weekend Margaret will:
+* Fly back to Davis
+* Go to Sac
+* COVID Vaccine
+* Die in bed
+
