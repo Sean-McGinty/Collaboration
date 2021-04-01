@@ -12,3 +12,11 @@ This weekend Margaret will:
 * COVID Vaccine
 * Die in bed
 
+Katie will do this:  
+
+- play pickleball 
+- go to the beach
+- celebrate a friend's birthday
+- do homework
+- get dinner with friends 
+
